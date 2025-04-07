@@ -1,4 +1,4 @@
-[Bandcamp](https://liral.bandcamp.com/album/devoid-of-self)\
-[Spotify](https://open.spotify.com/album/2uNv5mFn7ogJfHfbUJjD5b)\
-[Apple Music](https://music.apple.com/us/album/devoid-of-self/1793722215)\
+[Bandcamp](https://liral.bandcamp.com/)\
+[Spotify](https://open.spotify.com/artist/6SrbDC4xpbiLLgBdDItIZq?si=lrN2_SK9QUCCue9VrPFQ8w)\
+[Apple Music](https://music.apple.com/us/artist/liral/1793327922)\
 ["Lichens" Music Video](https://youtu.be/MdRMqaIRQzw)
